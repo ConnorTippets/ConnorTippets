@@ -1,2 +1,2 @@
-### ive had enough of that stupid readme
-just know that im a person. contact me on discord @contippets if you want to learn more
+### Ignore most of my older repositories. I made them when I was less than double-digits old.
+Yes, a programmer at 9. The problem?
